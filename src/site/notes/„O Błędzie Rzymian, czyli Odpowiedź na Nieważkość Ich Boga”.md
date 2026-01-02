@@ -1,0 +1,12 @@
+---
+{"dg-publish":true,"permalink":"/o-bledzie-rzymian-czyli-odpowiedz-na-niewazkosc-ich-boga/"}
+---
+
+**Mobed Ardawan**<sup>1</sup> 
+
+*(...) Niech więc umysły wiernych nie lękają się dzikich hord,które nadchodzą z Zachodu pod znakiem ich umęczonego boga. Są to ludzie, których wiara jest tak młoda i nieukształtowana jak ich cywilizacja. W swej duchowej prostocie czczą oni człowieka, który zginął w hańbie na drzewie, i ten właśnie akt poniżenia uważają za źródło mocy. Jakże słabym musi być bóg, który pozwala się zabić? Jakże chaotyczny musi być świat, w którym sam stwórca umiera z ręki swego stworzenia? Ich wiara jest zaprzeczeniem porządku, który Ahura Mazda ustanowił dla świata. Błąd ich tkwi w jądrze ich wiary. Mówią, że mają jednego Boga, a jednocześnie czczą go w trzech postaciach. Jest to czysty politeizm, jedynie przykryty cienkim welonem sofistyki. Nie potrafią oni pojąć najprostszej prawdy: że jest Jeden Bóg, Ahura Mazda, Źródło Wszelkiego Światła i Prawa, oraz jest Angra Mainju, Zasada Zniszczenia, Kłamstwa i Niebytu. Walka między nimi jest fundamentem istnienia, a człowiek ma w niej wybierać Stronę Światła. Rzymianie zaś mieszają wszystko w jedną, niezrozumiałą masę, gdzie ich bóg jest odpowiedzialny i za światło, i za ciemność, co czyni go albo szalonym, albo okrutnym. Ich praktyki są równie nieczyste jak ich teologia. Wnoszą do świętych miejsc wizerunki trupa na drewnie i szczątki zmarłych, które nazywają „relikwiami”. Oddają im cześć, całują je, gdy tymczasem każdy wiek dziecka wie, że zwłoki są nieczyste i skalają duszę. My czcimy ogień – czysty, wiecznie żywy, niewidzialny i widzialny zarazem, symbol Ahura Mazdy i Jego niepokalanej sprawiedliwości. Oni czcą śmierć i rozkład.*
+
+*Dlatego gdy ich żelazne oddziały wkraczają do naszych miast, nie przynoszą nam nowej prawdy. Przenoszą jedynie stary chaos, który zawsze bił od Zachodu. Nasz opór nie jest więc jedynie obroną ziemi, ale obroną samego porządku stworzenia przed siłami Angra Mainju, które teraz przybrały postać krzyczących barbarzyńców z krzyżami. Każdy perski wojownik, który staje na froncie, jest nie tylko żołnierzem Szachinszaha, ale także żołnierzem Światła. A my wiemy, że ostatecznie, gdy przyjdzie Saoszjant, by odnowić świat, Światło zwycięży, a ten pomieszany i bezładny kult Rzymian odejdzie w niepamięć, jak każda inna przejściowa ciemność.*
+
+---
+1 - Mobed Ardawan to kapłan Świątyni Ognia w Ktezyfonie, Nauczyciel Wiar
